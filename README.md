@@ -1,4 +1,4 @@
-- # 👋 Hi, I’m @geauxtigers69
+ # 👋 Hi, I’m @geauxtigers69
 
 I love the LSU Tigers and Nebraska Cornhuskers as well as coding. Here's more about me:
 
